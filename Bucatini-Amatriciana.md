@@ -41,3 +41,7 @@ Meanwhile, bring a large pot of water to a boil. Season with salt; add the pasta
 
 ### Step 3
 Add drained pasta to sauce in skillet and toss vigorously with tongs to coat. Add 1/2 cup of the reserved pasta water and cook until sauce coats pasta and pasta is al dente, about 2 minutes. (Add a little pasta water if sauce is too dry.) Stir in cheese and transfer pasta to warmed bowls.
+
+## Nutrition Per Serving
+
+One serving contains: Calories (Kcal) 524.6 %Calories From Fat 25.2 Fat (G) 14.7 Saturated Fat (G) 4.0 Cholesterol (Mg) 14.7 Carbohydrates (G) 75.9 Dietary Fiber (G) 6.0 Total Sugars (G) 7.4 Net Carbs (G) 69.9 Protein (G) 19.4 Sodium (Mg) 757.8
